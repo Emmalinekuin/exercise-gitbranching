@@ -22,7 +22,7 @@ Whole Wheat tortillas 300g slice into small 8-9cm circles
 Chilli flakes to serve
 
 INSTRUCTIONS
- 
+
 First let’s pickle the onions. This will bring out the bright pink colour and soften the raw onion taste as well as give a nice acidity to the tacos. Peel and slice the red onion into long thin slices. In a glass add the sliced onion along with the vinegar and fill the remaining space with water so that the onions are submerged and leave to sit to pickle.
 Finely dice the coriander including the stalks
 Slice the scallions, quarter the cherry tomatoes and finely slice the mushrooms into small bite sized pieces
@@ -38,3 +38,20 @@ Add a tbsp of the yoghurt coriander mix
 A generous spoonful of the mushroom black bean mix
 Top with some pickled red onion and some chopped coriander
 Enjoy!
+
+NUTRITION
+Calories: 172kcal
+Carbohydrates: 31g
+Protein: 10g
+Fat: 3g
+Saturated Fat: 1g
+Polyunsaturated Fat: 1g
+Monounsaturated Fat: 1g
+Sodium: 1056mg
+Potassium: 795mg
+Fiber: 6g
+Sugar: 12g
+Vitamin A: 1423IU
+Vitamin C: 52mg
+Calcium: 211mg
+Iron: 4mg
